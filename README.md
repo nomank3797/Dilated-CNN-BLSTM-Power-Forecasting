@@ -12,4 +12,4 @@
 # Citation:
 
 # Contact:
-Feel free to contact me at nomank3797@gmail.com if you have any queries
+If you have any questions or inquiries, please don't hesitate to contact me via email at nomank3797@gmail.com. I'm happy to assist you with any queries or concerns."
